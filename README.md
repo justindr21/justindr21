@@ -1,6 +1,6 @@
 GAHH (please do not spook me again by visiting my github .-.)
 
-Tis I, Justin.
+Its me Justin.
 
 I am still learning about what I need to learn and I feel like that cannot stop
 
