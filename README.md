@@ -1,6 +1,6 @@
 Its me Justin.
 
-I am still learning about what I need to learn and I feel like that cannot stop
+I am still learning literally everything that I think I know
 
 And then I have to learn that thing but then learning HOW to learn that thing becomes a whole other thing
 
