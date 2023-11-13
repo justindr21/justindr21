@@ -1,8 +1,6 @@
-Draft:
+Hi!
 
-Todo:
-- Complete draft
-- 
+Constantly and currently in the middle of something. 
 
 <!---
 justindr21/justindr21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
